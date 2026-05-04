@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi 👋, I'm Chetanraje Gund
+💫 About Me:
+# Hi 👋, I'm Chetanraje Gund
 
 
 ## 🌐 Socials:
